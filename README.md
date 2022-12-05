@@ -3,9 +3,4 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- fgna1239n (*NG*@OIFoijrq9ye92n OSIFJ()(noih4y9h_*_($8o4joid9fu_(_+_)+)+++eiriweru1302lkmY*YWEL98yKJNhihv983ljvzxoie7 Y BQ(W*&YE)))
 
-<!---
-thongtm-2098/thongtm-2098 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
